@@ -1,1 +1,1 @@
-# minerdelacryptograt
+# minerdescryptos
